@@ -1,5 +1,5 @@
 # 💫 About Me:
-BSIT System Development Student
+BSIT Student
 
 
 ## 🌐 Socials:
